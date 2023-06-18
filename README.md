@@ -1,0 +1,1 @@
+# lolplatina.github.io
